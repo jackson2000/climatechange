@@ -10,7 +10,7 @@
    7.That can be a problem because of all the carbon dioxide that is being added into the atmosphere.
    Making the heat warmer witch can cause other climate change's.Such as big ice sheets falling into the oceans making      sea level's rising.8.In the past 100 years sea level has risen about 5 inches.
    As the heat tempture heating up we can get bigger storms and even more heat.9.
-   10.
+   10.Water vapor is the most abundant greenghouse gas but importantly reacts to as feedback to climate.
    
     
     
