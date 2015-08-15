@@ -6,5 +6,7 @@
    4. what can we do all together to slow down the 
    earth's tempture heat rise?
    5. what can global warming do?
-   6. Global warming can increase the Earth's average suface tempture.C by greenhouse gases witch collects in the atmosphere.
+   6. Global warming can increase the Earth's average suface tempture.Caused by greenhouse gases witch collects in the atmosphere.
+   7. 
+    
    
