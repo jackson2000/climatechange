@@ -7,6 +7,7 @@
    earth's tempture heat rise?
    5. what can global warming do?
    6. Global warming can increase the Earth's average suface tempture.Caused by greenhouse gases witch collects in the atmosphere.
-   7. 
+   7.The underwater floor has been heating up in the past c of 100 year and so has the sea water.The water has risen seven inches in the past 100 years.
+   8. 
     
    
